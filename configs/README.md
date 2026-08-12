@@ -1,1 +1,1 @@
-hello from claude desktop
+i am messaging from claude code
