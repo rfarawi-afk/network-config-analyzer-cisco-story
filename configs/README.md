@@ -1,1 +1,1 @@
-its a beautiful day
+its monday
