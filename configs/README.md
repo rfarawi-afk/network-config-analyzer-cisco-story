@@ -1,1 +1,1 @@
-its thursday afternoon
+it's wednesday
