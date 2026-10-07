@@ -1,1 +1,1 @@
-it's friday
+its wednesday
