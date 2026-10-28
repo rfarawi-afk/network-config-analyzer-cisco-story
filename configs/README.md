@@ -1,1 +1,1 @@
-it's friday
+it's getting colder
